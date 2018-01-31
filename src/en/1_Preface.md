@@ -8,5 +8,5 @@ As the Christmas period drew to a close and I made my way back to Lisbon where I
 
 However I had to admit that if you had suggested 15 years ago that I would one day live on a boat that I had sailed from the UK to Portugal, I would have thought you were mad, precisely because I held that exact view that sail boats were a passion of the very rich. I learned otherewise thanks to the kindness of another, who invited me onto their boat and showed me the ropes and taught me a great deal else in the process.
 
-In January of 2018 was idley chatting with my Belgium friend Stéphane. We set on a boat, probably his, beers in hand talking about why we liked spending time on the water. .... 
+In January of 2018 my Belgium friend Stéphane were chatting idly. We set on a boat, probably his, beers in hand talking about why we liked spending time on the water. .... 
 
