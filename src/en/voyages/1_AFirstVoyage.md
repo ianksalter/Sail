@@ -10,9 +10,7 @@ Fire etc.
 
 Oh probably talk about life jackets too.
 
-Oh I have an edit
-
-The web has an edit too.
+We are deleting stuffs.
 
 
 Other sections
