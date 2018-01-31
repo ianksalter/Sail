@@ -8,6 +8,8 @@ briefing.
 
 Fire etc.
 
+Oh probably talk about life jackets too.
+
 
 Other sections
 
